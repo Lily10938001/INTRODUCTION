@@ -1,4 +1,4 @@
-## Hi, I’m @Lily10938001
+## Hi, I’m Lily10938001 =D
 
 ### 👀 I’m interested in ...   
 - Instagram, Youtube
